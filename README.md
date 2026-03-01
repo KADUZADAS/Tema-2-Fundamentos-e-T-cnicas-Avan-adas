@@ -1,1 +1,0 @@
-# Tema-2-Fundamentos-e-T-cnicas-Avan-adas
